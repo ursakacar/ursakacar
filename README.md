@@ -1,6 +1,6 @@
 ### Hi!
 
-I like oranges. 🍊
+QA Engineer by profession with one too many hobbies. 
 
 🕸️ [ursakacar.com](https://ursakacar.com)
 
